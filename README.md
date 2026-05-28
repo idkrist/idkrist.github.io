@@ -1,1 +1,0 @@
-# hasiltka2026.github.io
